@@ -1,4 +1,4 @@
-# Complete failure, the essence of human beings    ————Bobo
+# Give me liberty or give me death !  
 
 <!--
 **Thiefmooner/Thiefmooner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
